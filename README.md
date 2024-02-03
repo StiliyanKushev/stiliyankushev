@@ -1,1 +1,1 @@
-![hehe](https://im.ezgif.com/tmp/ezgif-1-cd8fc66fe7.gif)
+![hehe](https://i.imgur.com/y3y2HaU.gif)
